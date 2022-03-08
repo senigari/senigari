@@ -14,4 +14,4 @@ Seeking opportunities for full time to establish me as a prominent professional 
 
 Let's get connected!
 
-Charan ❇️ Email: bhuvaneshsenigari@gmail.com 📫 https://www.linkedin.com/in/senigari-bhuvanesh-649743155/
+Senigari ❇️ Email: bhuvaneshsenigari@gmail.com 📫 https://www.linkedin.com/in/senigari-bhuvanesh-649743155/
